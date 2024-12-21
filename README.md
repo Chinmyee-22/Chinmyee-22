@@ -52,7 +52,7 @@ I'm a passionate **Data Analyst** and **Business Analyst** with expertise in:
 ---
 
 ### 🌟 Fun Fact
-When I’m not analyzing data, I enjoy exploring new cultures, organizing events, watching soccer games, and reading novels! 📚⚽🌍
+When I’m not analyzing data, I enjoy exploring new cultures, organizing events, graphic designing, and reading novels! 📚⚽🌍
 
 ---
 
